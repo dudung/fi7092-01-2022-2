@@ -1,2 +1,2 @@
 # fi7092-01-2022-2
-course of fi7092
+Edunex [46523](https://edunex.itb.ac.id/courses/46523/preview), FI7092 Special Study I, Class 01, Academic Year 2022, Semester 2.
